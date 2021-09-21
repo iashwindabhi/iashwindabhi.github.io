@@ -2,8 +2,6 @@
 
 iashwindabhi@outlook.com
 
-https://linkedin.com/in/iashwindabhi
-
 Engineering Graduate with Interest in Technology
 Employee experience of over 5 years in Maintenace & Troubleshooing of Plant Equipments
 Cloud Computing Practitioner
