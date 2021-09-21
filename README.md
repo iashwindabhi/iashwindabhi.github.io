@@ -23,7 +23,7 @@ Persistence, Growth mindset, Empathy, Adaptability, Team work, Continues Learnin
 
 ## ACADEMIA 
 
-B. E. in Mechanical  (2005-09) from L.D. Engineering, Ahmedabad Gujarat University, India
+B. E. in Mechanical from L.D. Engineering, Ahmedabad Gujarat University, India
 
 
 
