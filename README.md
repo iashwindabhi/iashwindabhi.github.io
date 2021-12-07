@@ -19,7 +19,7 @@ Persistence, Growth mindset, Empathy, Adaptability, Team work, Continues Learnin
 
 ## ACADEMIA 
 
-B. E. in Mechanical from L.D. Engineering, Ahmedabad Gujarat University, India
+Cloud computing by Academy X
 
 
 
